@@ -1,0 +1,1 @@
+# MAGNITALE APP
